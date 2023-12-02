@@ -7,7 +7,7 @@
 
 - 📫 How to reach me *sriteja2712@gmail.com*
 
-- ⚡ Fun fact *I'm lazy as fuck XD!*
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
